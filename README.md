@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AURW970508HBCHBL09
+AURW970508HBCHBL09
